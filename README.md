@@ -1,1 +1,1 @@
-![16824_cmd_icon copy](https://github.com/user-attachments/assets/6778da07-e23e-4967-b865-ff4b191b89f6)
+![scale_1200](https://github.com/user-attachments/assets/4d0510aa-2e4f-4ecc-bb58-3e315c7b6a1e)
